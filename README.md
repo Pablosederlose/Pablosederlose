@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Pablosederlose
+- 👀 I’m interested in Lua
+- 🌱 I’m currently learning Lua
+- 📫 How to reach me Pablose on Discord
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Gmod
